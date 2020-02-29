@@ -9,5 +9,16 @@ they saw a rabbit.
 A gril has a one more friend.
 next sunday they went to park.
 she played with ball.
+je suis entrainde faire du caca.
+mais il y un file .
+la file ,elle entrain de regarder moi.
+c'est tres degulas.
+quand j'ai fini toilet
+c'est tes leur de rentrer
+il y a persone
+on plus c'est tes pa mon lecole......
+c'est tes un refe.
+Carotte arriva et mangea les loups.Cornichon arriva et mangea Carotte.Brocoli arriva et mangea Cornichon.Patate arriva et mangea Brocoli.Poireau arriva et mangea Patate et brula la foret .Un vieux monsieur arriva et construit des toilette avec son nez.Poireau pensais qu il pourais enfin faire c***.mais une voiture l ecrasa .le vieux monsieur pensais qu il pourais enfin boire du jus de poireau mais une voiture l ecrasa.
+Champignon arriva et essai ecraser la voiture mais la voiture l ecrasa.Betterave
 A gril find a cat.
 A girl find dog and cat and dog fight.
