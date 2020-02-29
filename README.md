@@ -9,3 +9,5 @@ they saw a rabbit.
 A gril has a one more friend.
 next sunday they went to park.
 she played with ball.
+A gril find a cat.
+A girl find dog and cat and dog fight.
