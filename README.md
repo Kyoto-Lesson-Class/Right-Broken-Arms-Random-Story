@@ -22,3 +22,10 @@ Carotte arriva et mangea les loups.Cornichon arriva et mangea Carotte.Brocoli ar
 Champignon arriva et essai ecraser la voiture mais la voiture l ecrasa.Betterave
 A gril find a cat.
 A girl find dog and cat and dog fight.
+ses sfhnkg,efdv hjhk4tl,re fmjokbrg 4thn hmtm hrth m jhth 
+les loup adord le caca-boudain 
+le loups a dit je vais vous d???????
+le garcon a pensse a son chien
+il s'est dit que le caca-boudain remplace le baton
+dans une boucheris il a vole un caca-boudain il a pris dans ses mains et il le lanca
+et les loups ces enferme dans les egouts
